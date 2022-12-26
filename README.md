@@ -1,1 +1,1 @@
-# FoxServerID.github.io
+# FoxServerID.net
